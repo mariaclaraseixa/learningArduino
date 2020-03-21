@@ -23,6 +23,6 @@ team member Maria Clara Seixa Scheffel
      |/__/   `-' 
      | 
      | 
-     |    -hrr- 
-  ___|_____________ 
+     |    -Maria Clara Seixa Scheffel- 
+  ___|_________________________________________________________________________ 
 </pre>
